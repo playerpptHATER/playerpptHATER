@@ -16,7 +16,7 @@ ${\color{#FACAE7}\text{Stαy sαfe αnd hαve fun!}}$
 
 <p align="center">
 <sub>
-<a href="https://koifishuu.atabook.org/">αtαbook</a> ${\color{#FFFCE6}\text{ㅤ┄ㅤ}}$ <a href="https://guns.lol/koixzu">gunz.lol</a><br> ${\color{#FFFCE6}\text{c*h friendly unless on dni/uf/etc}}$
+<a href="https://koifishy.atabook.org/">αtαbook</a> ${\color{#FFFCE6}\text{ㅤ┄ㅤ}}$ <a href="https://guns.lol/koixzu">gunz.lol</a><br> ${\color{#FFFCE6}\text{c*h friendly unless on dni/uf/etc}}$
 </sub>
 
 <p align="center">
